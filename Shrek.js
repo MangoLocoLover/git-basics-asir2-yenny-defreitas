@@ -1,75 +1,75 @@
-Shrek:
-Once upon a time, there was a lovely princess. But she had an enchantment upon her of a fearful sort, which could only be broken by love's first kiss. She was locked away in a castle, guarded by a terrible fire-breathing dragon. Many brave knights had attempted to free her from the dreadful prison, but none prevailed. She waited in the dragon's keep, in the highest room of the tallest tower, for her true love and true love's first kiss." [Laughing] Like that's ever gonna happen.
+shrek:
+"Había una vez una encantadora princesa. Pero tenía sobre ella un hechizo de un tipo terrible, que sólo podía romperse con el primer beso del amor. Estaba encerrada en un castillo, custodiada por un terrible dragón que escupe fuego. . Muchos valientes caballeros habían intentado liberarla de la terrible prisión, pero ninguno prevaleció. Ella esperó en la torre del dragón, en la habitación más alta de la torre más alta, por su verdadero amor y el primer beso del verdadero amor. [Risas] Como si eso alguna vez fuera a suceder.
 
-[Paper Rustling, Toilet Flushes]
+[Susurro de papel, descarga del inodoro]
 
-Shrek:
-What a load of--
+shrek:
+¡Qué carga de--
 
-[Toilet Door slams]
+[La puerta del baño se cierra de golpe]
 
-Shrek hops out his outhouse and his routine like taking a mud shower and farting in his pool.
+Shrek sale de su letrina y de su rutina, como darse una ducha de barro y tirarse pedos en la piscina.
 
-[♪ All-Star By Smash Mouth Playing]
-
-Steve Harwell:
-♪ Somebody once told me the world is gonna roll me, I aint the sharpest tool in the shed. She was lookin kind of dumb with her finger and her thumb in the shape of an "L" on her forehead. The years start comin', and they don't stop comin', fed to the rules and I hit the ground runnin', didn't make sense not to live for fun. Your brain gets smart but your head gets dumb. So much to do, so much to see, so what's wrong with takin' the backstreets. You'll never know if you don't go, you'll never shine if you don't glow. Hey, now, you're an all-star. Get your game on, go play. Hey, now, you're a rock star. Get the show on, get paid. And all that glitters is gold, only shootin' stars break the mold. It's a cool place, and they say it gets colder, you're bundled up now, but wait till you get older. But the meteor men beg to differ judging by the hole in the satellite picture. The ice we skate is gettin pretty thin, the waters getting warm so you might as well swim. My worlds on fire, how bout yours? Thats the way I like it and Ill never get bored. Hey, now, you're an all-star. ♪
-
-[Shouting]
+[♪ All-Star por Smash Mouth Playing]
 
 Steve Harwell:
-♪ Get your game on, go play. Hey, now, youre a rock star. Get the show on, get paid. And all that glitters is gold, only shootin' stars break the mold. ♪
+♪ Alguien me dijo una vez que el mundo me va a hacer rodar, que no soy la herramienta más afilada del cobertizo. Parecía un poco tonta con el dedo y el pulgar en forma de "L" en la frente. Los años comienzan a llegar, y no dejan de llegar, alimentados por las reglas y comencé a correr, no tenía sentido no vivir para divertirme. Tu cerebro se vuelve inteligente pero tu cabeza se vuelve tonta. Hay tanto que hacer, tanto que ver, entonces, ¿qué hay de malo en tomar las callejuelas? Nunca lo sabrás si no vas, nunca brillarás si no brillas. Oye, ahora eres una estrella. Comienza tu juego, ve a jugar. Oye, ahora eres una estrella de rock. Pon el espectáculo y cobra. Y todo lo que brilla es oro, sólo las estrellas fugaces rompen el molde. Es un lugar fresco, y dicen que hace más frío, ahora estás abrigado, pero espera a que seas mayor. Pero los hombres del meteorito no están de acuerdo a juzgar por el agujero en la imagen de satélite. El hielo sobre el que patinamos se está volviendo bastante fino y el agua se está calentando, por lo que es mejor nadar. Mi mundo está en llamas, ¿qué tal el tuyo? Así es como me gusta y nunca me aburriré. Oye, ahora eres una estrella. ♪
 
-[Belches]
-
-Villagers:
-Go! Go!
-
-[Record Scrating]
+[Gritos]
 
 Steve Harwell:
-♪ Go. Go. Go. Hey, now, youre an all-star. Get your game on, go play. Hey, now, youre a rock star, get the show on, get paid. And all that glitters is gold, only shootin' stars break the mold. ♪
+♪ Comienza tu juego, ve a jugar. Oye, ahora eres una estrella de rock. Pon el espectáculo y cobra. Y todo lo que brilla es oro, sólo las estrellas fugaces rompen el molde. ♪
 
-Villagers:
-Think its in there? All right! Let's get it!
+[eructos]
 
-Villager 1:
-Whoa. Hold on. Do you know what that thing could do to you?
+Aldeanos:
+¡Ir! ¡Ir!
 
-Villager 2:
-Yeah, it'll grind your bones for its bread.
+[Raspado de registros]
 
-Shrek:
-[Laughs] Yes, well, actually, that would be a giant. Now, ogres-- theyre much worse. They'll make a suit from your freshly peeled skin.
+Steve Harwell:
+♪ Ve. Ir. Ir. Oye, ahora eres una estrella. Comienza tu juego, ve a jugar. Oye, ahora eres una estrella de rock, empieza el espectáculo y te pagan. Y todo lo que brilla es oro, sólo las estrellas fugaces rompen el molde. ♪
 
-Villager 3:
-No!
+Aldeanos:
+¿Crees que está ahí? ¡Está bien! ¡Consigámoslo!
 
-Shrek:
-Theyll shave your liver. Squeeze the jelly from your eyes! Actually, it's quite good on toast.
+Aldeano 1:
+Vaya. Esperar. ¿Sabes lo que esa cosa podría hacerte?
 
-Villager 3:
-Back! Back, beast! Back! I warn ya!
+Aldeano 2:
+Sí, molerá tus huesos para obtener pan.
 
-[Gasping]
+shrek:
+[Risas] Sí, bueno, en realidad, eso sería un gigante. Ahora, los ogros... son mucho peores. Te harán un traje con tu piel recién pelada.
 
-Villager 3:
-Right.
+Aldeano 3:
+¡No!
 
-[Roaring]
+shrek:
+Te afeitarán el hígado. ¡Exprime la gelatina de tus ojos! De hecho, queda bastante bueno con una tostada.
 
-[Shouting]
+Aldeano 3:
+¡Atrás! ¡Atrás, bestia! ¡Atrás! ¡Te lo advierto!
 
-[Roaring]
+[Jadeando]
 
-[Roaring Continues]
+Aldeano 3:
+Bien.
 
-[Shouting Continues]
+[Rugido]
 
-Shrek:
-[Whispers] This is the part where you run away.
+[Gritos]
 
-[Gasping]
+[Rugido]
 
-Shrek:
-[Laughs] [Laughing] And stay out! Wanted. Fairy tale creatures. [Sighs]
+[El rugido continúa]
+
+[Los gritos continúan]
+
+shrek:
+[Susurros] Esta es la parte en la que huyes.
+
+[Jadeando]
+
+shrek:
+[Risas] [Risas] ¡Y quédate fuera! "Se buscan criaturas de cuento de hadas." [Suspiros]
